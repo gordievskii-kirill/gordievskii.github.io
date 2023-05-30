@@ -1,1 +1,0 @@
-# gordievskii.github.io
